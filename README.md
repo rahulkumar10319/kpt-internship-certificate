@@ -19,7 +19,7 @@ During my internship at Karachi Port Trust, I gained professional exposure to a 
 
 ## 📄 Certificate
 
-[**View My KPT Internship Certificate**](./KPT-Internship-Certificate.jpg)
+[**View My KPT Internship Certificate**](./KPT-Internship-Certificate.jpg.jpeg)
 
 ## 👨‍💻 About Me
 
